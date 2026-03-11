@@ -1,4 +1,4 @@
-## Hi there 👋
+## Hi there 👋 I'm Adriana (Ad- aydee)
 
 Director, Stand With Crypto UK & EU
 I lead a grassroots movement connecting builders, founders, users, and policymakers to support innovation-friendly digital asset regulation across the UK and Europe.
