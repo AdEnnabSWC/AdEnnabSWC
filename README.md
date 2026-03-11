@@ -25,8 +25,15 @@ Supporting founders building the next generation of financial infrastructure
 🤝 Connect, sign up as an advocate and sign our petitions 
 
 🌐 https://www.standwithcrypto.org/gb and https://www.standwithcrypto.org/eu/en
+
 💼 https://www.linkedin.com/in/adriana-ennab
+
+💼https://www.linkedin.com/company/standwithcryptouk/
+
+💼https://www.linkedin.com/company/stand-with-crypto-eu/
+
 🐦 https://x.com/CryptoAdEnnab 
+
 🐦 https://x.com/StandWCrypto_UK
 
 <!--
